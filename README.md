@@ -1,0 +1,182 @@
+# Charli xcx – party 4 u
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I only threw this party for you
+Only threw this party for you,
+for you, for you
+I was hopin'
+you would come through
+I was hopin'
+you would come through,
+it's true, it's true
+Only threw this party for you
+I only threw this party for you,
+for you, for you
+I'm about to party on you
+Watch me, watch me party on you,
+yeah
+1000 pink balloons
+DJ with your favorite tunes
+Birthday cake in August
+But you were born 19th of June
+Champagne pourin' in your mouth
+Called your friends
+from out of town
+Got the party bag
+with the purple pills
+And I'm waiting for you
+by the window, yeah
+Called your digits,
+but the phone kept ringin'
+Wish I knew
+what you were thinking
+Na-na, na, 1000 pink balloons
+Dancin' on
+to your favorite tunes
+Hope you walk in the party
+'Cause I threw the party
+just for you like what
+I only threw this party for you
+Only threw this party for you,
+for you, for you
+I was hopin'
+you would come through
+I was hopin'
+you would come through,
+it's true, it's true
+I only threw this party for you
+I only threw this party for you,
+for you, for you
+I'm about to party on you
+Watch me,
+watch me party you, yeah
+You could watch me pull up
+on your body
+Like it's summer,
+take my clothes off
+In the water splash around and
+get you blessed like holy water
+I don't know
+what you were waiting for
+You know that
+I've been waiting for you
+(I only threw this party
+for you)
+If you saw my tears,
+would you touch me?
+Kiss me on the mouth,
+say you love me?
+Leave a message,
+tell me you're sorry?
+Hit me right back,
+hit me right back
+Why you treating me like someone
+that you never loved
+I only threw this party for you
+Only threw this party for you,
+for you, for you
+I was hopin'
+you would come through
+I was hopin'
+you would come through,
+it's true, it's true
+Only threw this party for you
+I only threw this party for you,
+for you, for you
+I'm about to party on you
+Watch me, watch me party on you,
+yeah
+I only threw this party for you
+Only threw this party for you,
+for you, for you
+I was hopin'
+you would come through
+I was hopin'
+you would come through,
+it's true, it's true
+Only threw this party for you
+I only threw this party for you,
+for you, for you
+I'm about to party on you
+Watch me, watch me party on you,
+yeah
+Party on you, party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Party on-party on you,
+party on you
+Come to my party
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+Come to my party
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+All I'm thinking, all I know is
+(Party on-party on you,
+party on you)
+That I hope you knock on my door
+(Party on-party on you,
+party on you)
+Nervous energy
+(Party on-party on you,
+party on you)
+My heart rate rises higher,
+higher up
+(Party on-party on you,
+party on you)
+I wish you'd get here,
+kiss my face
+(Party on-party on you,
+party on you)
+Instead you're somewhere
+far away
+(Party on-party on you,
+party on you)
+I love this energy, will stay
+(Party on-party on you,
+party on you)
+I hope you realize one day, uh
+(Party on-party on you,
+party on you)
+Come to my party
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+Come to my party
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+Oh-oh, ohh-oh, oh, mhh, ah
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+(Party on-party on you,
+party on you)
+```
